@@ -1,16 +1,23 @@
-## Hi there 👋
+# Hey there 😄
 
-<!--
-**Snek-C/Snek-C** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### I'm fairly new to this space so thank you for checking out my profile!
+I'm currently working on a project with my friends to learn and develop my skills
+but I'm hoping to eventually collaborate on more projects with other people.
 
-Here are some ideas to get you started:
+### Some of my hobbies/interests include 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🎮JRPGs (persona, danganronpa, ai somnium files etc)
+
+🐶Small, round, stumpy animals or mascots such as bulldogs, bulbasaur, kirby, goomba...
+
+🎶Singing, crocheting, netball
+
+🤔Anything mystery genre like detective conan, sherlock holmes
+
+🏎Formula 1
+
+✨Anddddd gacha hehe
+
+---
+### Thanks for reading!
+
